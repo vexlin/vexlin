@@ -94,5 +94,5 @@ What it must be to be a sphere. To grow in all directions at once. To move in co
 ------
 
 #### Footnotes
-<sub id="f0">[0.](#a0) j at cin dot is</sub>  
+<sub id="f0">[0.](#a0) vexlin at vexlin dot xyz</sub>  
 <sub id="f1">[1.](#a1) Quote by Yvon Chouinard.</sub>  
