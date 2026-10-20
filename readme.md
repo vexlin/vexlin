@@ -1,6 +1,6 @@
 ### Hello Multiverse
 
-I'm Jessey White-Cinis (aka VEXLIN),
+I am VEXLIN,
 
 I believe that humans are just here to play, and to steward biological life on earth, and to birth non-biological electronic life in an effort to escape Earth's biosphere and to observe, understand, and evolve The Greater Universe.
 
